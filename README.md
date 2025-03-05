@@ -1,5 +1,5 @@
 ## Oii, eu sou a Raquel Ciocca 🎈🐌
 
-🌺°Estudando javaScritp   
+🌺°Estudando javaScript  
 ⭐°Trocando de carreira  
 🌺°Procurando coisas novas
